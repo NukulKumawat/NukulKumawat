@@ -2,8 +2,10 @@
 
 ### Location: Jaipur, Rajasthan  
 📞 **Phone**: +91-7877220165  
-✉️ **Email**: [nukulkumawat0@gmail.com](mailto:nukulkumawat0@gmail.com)   
-🔗 **LinkedIn**: [linkedin.com/in/nukul-kumawat](https://www.linkedin.com/in/nukul-kumawat-a42400229/)
+✉️ **Email**: [nukulkumawat0@gmail.com](mailto:nukulkumawat0@gmail.com)  
+🔗 **LinkedIn**: [linkedin.com/in/nukul-kumawat](https://www.linkedin.com/in/nukul-kumawat-a42400229/)  
+✦ **LeetCode**: [leetcode.com/Nukulkmwt](https://leetcode.com/Nukulkmwt)  
+✦ **CodeChef**: [codechef.com/nukulkumawat](https://www.codechef.com/users/nukulkumawat)  
 
 ---
 
