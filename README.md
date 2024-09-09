@@ -67,11 +67,13 @@ To attain significant career advancement by embracing continuous learning, stayi
 - **CGPA**: 8.12*/10
 
 **Swami VVM Sr Sec School**  
-*Senior Secondary Examination(RBSE)- 91.60%*
-*2019 - 2020*
-*Secondary Examination(RBSE) - 83.50%* 
+*Senior Secondary Examination(RBSE)-91.60%*  
 *Hanumangarh, Rajasthan*  
-*2017 - 2018*
+**2019-2020**
+
+*Secondary Examination(RBSE)-83.50%*  
+*Hanumangarh, Rajasthan*  
+**2017-2018**
 
   
 
